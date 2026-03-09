@@ -2,7 +2,7 @@
 You have the power to extend the lifespan of your air conditioner with the right care. By employing a blend of maintenance techniques and preventing excessive strain on the system, you can significantly prolong its functionality. In this article, we will discuss ten best tips to help you extend the lifespan of your AC unit.
 
 ## Is it Possible to Extend the AC Unit Lifespan?
-Yes, we can extend the lifespan of our AC unit through proper maintenance and care. According to the U.S. Department of Energy, regular maintenance such as cleaning or replacing filters, cleaning the coils, regular AC repair & maintenance, and checking the refrigerant levels can help improve the efficiency and extend the lifespan of your air conditioner.
+Yes, we can extend the lifespan of our AC unit through proper maintenance and care. According to the U.S. Department of Energy, regular maintenance such as cleaning or replacing filters, cleaning the coils, regular [AC repair & maintenance](https://www.fajservices.ae/services/air-conditioning-repair/ac-service/), and checking the refrigerant levels can help improve the efficiency and extend the lifespan of your air conditioner.
 
 ## Ten Best Tips to Extend the Lifespan of Your AC Unit
 Following are the key tips which are necessary to extend the lifespan of your AC unit.
@@ -26,3 +26,6 @@ Following are the key tips which are necessary to extend the lifespan of your AC
 9. Monitor Refrigerant Levels
 
 10. Know When to Say Goodbye
+
+FAJ Technical Services L.L.C offers expert AC services, including professional installation, repairs, deep cleaning, and annual maintenance contracts (AMC) to ensure your cooling system remains efficient year-round. 
+
